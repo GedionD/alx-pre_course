@@ -1,1 +1,1 @@
-new school stu
+new school stu updated
